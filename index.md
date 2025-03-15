@@ -4,13 +4,13 @@ layout: content
 
 ### Who am I
 
-I'm a second-generation East Asian, born in the UK and currently living near London. My parents moved to the UK before I was born. At one time, we owned a restaurant; I remember going downstairs and hearing the crackle of the woks, seeing the bustle from the kitchen staff, and the door that flapped every 30 seconds as dishes would be moving across the cold metal kitchen tops into the waiters' hands, who would promptly dashed out the same door out to the customers.
+I'm a second-generation East Asian, born in England and currently living near London. My parents moved to the UK before I was born. We used to own a restaurant; I remember going downstairs and hearing the crackle of the woks, seeing the bustle from the kitchen staff, and the door that flapped every 30 seconds as dishes would be moving across the cold metal kitchen tops into the waiters' hands, who would promptly dashed out the same door out to the customers.
 
 I had a pretty typical East Asian upbringing. My parents were busy managing the business, and I was told that I needed to get good grades so that I could go to university, graduate, and get a well-paying job.
 
 I never liked the idea. I was lucky enough to be taken on quite a few family trips abroad when I was young. I loved seeing people from all walks of life, and I connected more with the local aunties running small family bakeries than I did with people working in corporate environments.
 
-I mostly travelled to both Hong Kong and Thailand since those were where my parents were from. I remember sitting under the blazing sun, drinking Pocari Sweat or Vita. We were doing well financially at the time (enough to go on these trips abroad, at least), but the places I stayed were considered rural.
+Since my dad was Chinese and my mother was Thai, I mostly travelled to both Hong Kong and Thailand. I remember sitting under the blazing sun, drinking Pocari Sweat or Vita. We were doing well financially at the time (enough to go on these trips abroad, at least), but the places I stayed were considered rural.
 
 Back in Thailand, we would herd chickens and pigs or go to the rice fields to harvest grains. When we were in Hong Kong, I would cycle around the area, play in the local park, and get overly invested in Bakugan, Gundam, or Yu-Gi-Oh cards. Even though life was considered simple, those were some of my happiest memories.
 
