@@ -4,7 +4,7 @@ layout: content
 
 ### Who am I
 
-I'm a second-generation East Asian, living in England near London. My parents moved to the UK before I was born. We used to own a restaurant; I remember going downstairs and hearing the crackle of the woks, seeing the bustle from the kitchen staff, and the door that would flap open every 30 seconds as dishes would be moving across the cold metal kitchen tops into the waiters' hands, who would promptly dash out the same door out to the customers.
+I'm a second-generation East Asian, living in England near London. My parents moved to the UK before I was born. We used to own a restaurant; I remember going downstairs and hearing the crackle of the woks, seeing the bustle from the kitchen staff, and the door that would flap open every 30 seconds as dishes would be moving across the cold metal kitchen tops into the waiters' hands, who would promptly dash out the same door to the customers.
 
 I had a pretty typical East Asian upbringing. My parents were busy managing the business, and I was told that I needed to get good grades so that I could go to university, graduate, and get a well-paying job.
 
