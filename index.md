@@ -20,7 +20,7 @@ I had no interest in studying or going to university. I knew the cards I had ava
 
 There were hurdles along the way, but the vision I set for myself was achieved. I managed to sort out a career, got married to my high-school sweetheart, and recently purchased a small flat with her. We spend time discussing what piece of furniture we need to purchase next, she would often cook and we would rate the dish out of 10, and we argue about what show to put on next on our TV.
 
-### What now? The defining decade
+### What now? The Defining Decade
 
 Some people call the 20s a 'defining period'. I've recently turned 24, and it's an odd feeling. To have set what seemed like a far-off target and having reached it in my mid-twenties. Having met my 'winning conditions' that I set for myself, I've had a lot of time to think about where I want to take my life next.
 
