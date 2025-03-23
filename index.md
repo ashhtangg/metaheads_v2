@@ -18,7 +18,7 @@ As I got older, studies became more serious and my parents got busier, and I sud
 
 I had no interest in studying or going to university. I knew the cards I had available to me, and I knew the hand I wanted to play. I started going to the gym when I was 14, worked on my fashion sense, my confidence, pursued hobbies, and got into a relationship with my partner at 16.
 
-There were hurdles along the way, but the vision I set for myself was achieved. I managed to sort out a career, got married to my high-school sweetheart, and recently purchased a small flat with her. We spend time discussing what piece of furniture we need to purchase next, she would often cook and we would rate the dish out of 10, and we argue about what show to put on next on our TV.
+There were hurdles along the way, but the vision I set for myself was achieved. I managed to sort out a career, got married to my high-school sweetheart, and recently purchased a small flat with her. We spend time discussing what piece of furniture we need to purchase next, she would often cook and we would rate the dish out of 10, and we argue about what show to put on our TV.
 
 ### What now? The Defining Decade
 
@@ -32,7 +32,7 @@ What now?
 
 ### Sacrifice and Potential
 
-I thought about my parents. Their journey and mine — how they had to drop out of school at an early age to work, whether that was farm labor or carrying buckets of water/produce on their backs. How hard they worked to eventually move into the UK and give me this privileged life.
+I thought about my parents. Their journey and mine — how they had to drop out of school at an early age to work, whether that was farm labour or carrying buckets of water/produce on their backs. How hard they worked to eventually move into the UK and give me this privileged life.
 
 My parents were often busy working, so we didn't spend too much time together, or they would be strict. At the time, we didn't often see eye to eye, however, I've come to appreciate their efforts.
 
