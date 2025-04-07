@@ -1,6 +1,6 @@
 ---
 layout: post
-title:	"First Experience with Ramdan"
+title:	"First Experience with Ramadan"
 date:	2023-04-06 10:45:00
 categories:
     - blog
