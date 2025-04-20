@@ -1,7 +1,7 @@
 ---
 layout: post
 title:	"Life Classes and Sub Classes"
-date:	2025-04-20 03:18:00
+date:	2023-04-19 03:18:00
 categories:
     - blog
 tags:
@@ -26,7 +26,7 @@ This later translated to my love of boxing: the art of hitting without getting h
 
 What I love about physicality is that performance/ability isn't just determined by how much you can lift or the size of your frame. I suit being someone who is slim, quick, nimble, with good dexterity and hand-eye coordination.
 
-### Class:Mage 
+### Class:The Mage 
 
 As I've put more focus into coding and since my day job is within the MSP space. I have encountered my fair share of 'wizards'. People that are able to fix and spot almost any problem, they're able to plan and lead projects, able to code and scale their own apps, proficient in different coding languages, manage infrastructure for hundreds or thousands of end users.
 
