@@ -14,7 +14,7 @@ Warriors. Mages. Bards. Priests.
 
 These are the classes I believe people typically fit into. Warriors are physically skilled and thrive on challenge. Mages are intellectuals, masters of technical skills. Bards are theatrical, bringing joy and energy to those around them. Priests are guided by strong spiritual or religious values.
 
-Most people are a mix of these archetypes but tend to favor one. While you could argue there are more classes, I see these as the fundamentals. I want to focus on the classes I align with and how this shapes my decision-making.
+Most people are a mix of these archetypes but tend to favor one. While you could argue there are more classes, I see these as the fundamentals. I want to focus on the classes I most align with and how this shapes my decision-making.
 
 ### Class:The Warrior
 
@@ -38,7 +38,7 @@ I feel most people are predisposed to be a certain way. Usually, you can tell wh
 
 Even though I'm not bad in any of these categories. I'm not exactly a super athlete, I'm not exactly a genius or really studious, and I'm not really outspoken and charismatic. 
 
-One of the cooler classes that I would come across playing RPGs back when I was younger, would be *battle mages*. They weren't as strong or physically imposing as warriors, and they weren't as intellectual or gifted magically as mages. However they've mashed their circumstances into some sort of hybrid.
+One of the cooler classes that I would come across playing RPGs back when I was younger, would be *battle mages*. They weren't as strong or physically imposing as warriors, and they weren't as intellectual or magically gifted as mages. However they've mashed their circumstances into some sort of hybrid.
 
 What I sometimes consider a weakness also gives me the opportunity to be great in my own right. I can cover a larger area of competency. Wizards are known to be socially reclusive and physically weak. Warriors are known to be intellectually stunted and simple. I can ideally cover both these weaknesses. 
 
