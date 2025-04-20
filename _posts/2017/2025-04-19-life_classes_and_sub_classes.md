@@ -46,7 +46,7 @@ What I sometimes consider a weakness also gives me the oppporunity to be great i
 
 The problem is that I have to work twice as hard to get the same results in a certain area as someone naturally gifted, I have to study more, I have to build more, I have to run more, I have to fight more. 
 
-I'll likely never reach the level of being a 'Arch Mage' intellectionally, or being a 'Grand Warrior' physically. If there was a ranking or level to being a 'Battle Mage' - I'm very much aware that I'm currently a novice or amatuer.
+I'll likely never reach the level of being a 'Arch Mage' intellectionally, or be a 'Grand Warrior' physically. If there was a ranking or level to being a 'Battle Mage' - I'm very much aware that I'm currently a novice or amatuer.
 
 However this is my ticket to greatness, it's not about being the best globally, it's about imposing my will through hardship and it leading to the best manifestion of my spirit. 
 
