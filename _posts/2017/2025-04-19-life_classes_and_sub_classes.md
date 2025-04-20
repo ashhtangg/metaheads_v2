@@ -22,7 +22,7 @@ You could argue that there are many more classes, however I consider these the f
 
 I've always admired physicality. I'm not necessarily someone that looks strong (being around 5'6 and smaller framed) - however growing up watching Naruto, Bleach and other shonen shows. Being able to push and exert yourself always appealed to me. 
 
-I used to go gym 5 times a week, twice a day, I tracked my macros and protein intake. I knew (and still know) my all-time PRs — my max bench, squat, deadlift and my best 5km run time.
+I used to go gym 5 times a week, I tracked my macros and protein intake. I knew (and still know) my all-time PRs — my max bench, squat, deadlift and my best 5km run time.
 
 This later translated to my love of boxing: the art of hitting without getting hit, the head movement, the different types of guards, space control, cadence, and rhythm. The thrill that I felt to have full autonomy in what felt like every inch of fibre and muscle I had within my body, to make people miss by a fraction of a hair, or to place shots with pin point speed and procision.
 
