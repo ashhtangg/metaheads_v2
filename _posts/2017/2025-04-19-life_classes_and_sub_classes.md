@@ -12,7 +12,7 @@ tags:
 
 Warriors. Mages. Bards. Priests.
 
-These are the classes I believe people typically fit into. A warrior is someone who is very physically adept. A mage is someone who's highly intelligent with strong technical skills. A bard is someone more theatrical — they make people laugh and bring good energy. A priest is someone with strong spiritual or religious values.
+These are the classes I believe people typically fit into. A warrior is someone who is very physically adept. A mage is someone who is an intellectual with strong technical skills. A bard is someone more theatrical — they make people laugh and bring good energy. A priest is someone with strong spiritual or religious values.
 
 Usually, a person is a mixture of these categories but tends to strongly favor one.
 
