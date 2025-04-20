@@ -1,7 +1,7 @@
 ---
 layout: post
 title:	"Life Classes and Sub Classes"
-date:	2023-04-19 03:18:00
+date:	2025-04-19 03:18:00
 categories:
     - blog
 tags:
