@@ -12,7 +12,7 @@ tags:
 
 Warriors. Mages. Bards. Priests.
 
-These are the classes I believe people typically fit into. Warriors are physically skilled and thrive on challenge. Mages are intellectuals, masters of technical skills. Bards are theatrical, bringing joy and energy to those around them. Priests are guided by strong spiritual or religious values.
+These are the classes I believe people typically fit into. Warriors are physically adept. Mages are intellectuals, with high technical ability. Bards are theatrical, bringing joy and energy to those around them. Priests are guided by strong spiritual or religious values.
 
 Most people are a mix of these archetypes but tend to favor one. While you could argue there are more classes, I see these as the fundamentals. I want to focus on the classes I most align with and how this shapes my decision-making.
 
